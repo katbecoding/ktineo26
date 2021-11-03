@@ -1,0 +1,5 @@
+- 👋 Hi, I’m kat!
+- 👀 I’m interested in UX/UI design as well as software, mobile, and app development. 
+- 🌱 I’m currently learning basic coding and UX/UI design.
+- 💞️ I’m looking to collaborate on projects that help me and others growth our skills together.
+- 📫 How to reach me email me! - ktineo26@gmail.com 
